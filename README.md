@@ -24,6 +24,9 @@ https://openedu.ru/course/hse/INTRML/
 
 
 
+список  группы https://docs.google.com/spreadsheets/d/1ft7pfIerzuG0lrPO5DemYEiBhlVKJzMh-zCBRP_EFoU/edit#gid=0
+
+
 Контакты преподавателя:
 
 Эл. почта: nurutdinovaar@mail.com
