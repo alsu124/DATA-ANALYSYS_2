@@ -24,8 +24,7 @@ https://openedu.ru/course/hse/INTRML/
 
 
 
-список  группы https://docs.google.com/spreadsheets/d/1ft7pfIerzuG0lrPO5DemYEiBhlVKJzMh-zCBRP_EFoU/edit#gid=0
-
+список  группы https://docs.google.com/spreadsheets/d/1w8p1pbi2DxEQ5Qk05K0dcuNfnAV9EOOr9y-CMQGTyog/edit?usp=sharing
 
 Контакты преподавателя:
 
